@@ -1,4 +1,5 @@
-https://github.com/mayofio/mayofio/assets/174650261/b4fd32fd-2dd9-4fba-95c5-ed265e0f3ee8
+![Shne-ezgif com-resize](https://github.com/mayofio/mayofio/assets/174650261/a4160ab6-fe88-4861-8f9a-de48915ef070)
+
 
 
 ### Hi there! <img src="https://emojis.slackmojis.com/emojis/images/1536351075/4594/blob-wave.gif" width="25"/>
