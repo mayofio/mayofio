@@ -1,4 +1,4 @@
-![Banner](https://www.canva.com/design/DAGKARhjE80/MCyKvXTD-6gTbbj7Z0uY6A/watch?utm_content=DAGKARhjE80&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+![Banner](https://github.com/mayofio/mayofio/assets/174650261/b4fd32fd-2dd9-4fba-95c5-ed265e0f3ee8)
 
 
 ### Hi there! <img src="https://emojis.slackmojis.com/emojis/images/1536351075/4594/blob-wave.gif" width="25"/>
