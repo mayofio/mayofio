@@ -1,3 +1,6 @@
+![Banner](https://www.canva.com/design/DAGKARhjE80/MCyKvXTD-6gTbbj7Z0uY6A/watch?utm_content=DAGKARhjE80&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+
+
 ### Hi there! <img src="https://emojis.slackmojis.com/emojis/images/1536351075/4594/blob-wave.gif" width="25"/>
 
 I'm Fiona! 
